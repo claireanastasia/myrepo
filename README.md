@@ -12,23 +12,23 @@ I am a **second year** at the College studying **American history** from **New Y
 ### Some Favorites
 1. **Movies** 
 
-  i) *Black Narcissus* 
-  
-  ii) *Divorce Italian Style* 
+    i) *Black Narcissus* 
+    
+    ii) *Divorce Italian Style* 
   
 2. **Books** 
 
-  i) *The Master and Margarita* 
-  
-  ii) *Silas Marner* 
+    i) *The Master and Margarita* 
+    
+    ii) *Silas Marner* 
   
 3. **Things to Do** 
 
-  i) Hiking 
-  
-  ii) Drawing 
-  
-  iii) Exploring Chicago 
+    i) Hiking 
+    
+    ii) Drawing 
+    
+    iii) Exploring Chicago 
   
   
   
