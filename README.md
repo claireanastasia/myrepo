@@ -10,17 +10,21 @@ I am a **second year** at the College studying **American history** from **New Y
 - I just started as a volunteer creative writing instructor at Cook County Jail
 
 ### Some Favorites
-1. **Movies**
-  i) *Black Narcissus*
-  ii) *Divorce Italian Style*
+1. **Movies** 
+
+  i) *Black Narcissus* 
+  ii) *Divorce Italian Style* 
   
-2. **Books**
-  i) *The Master and Margarita*
-  ii) *Silas Marner*
+2. **Books** 
+
+  i) *The Master and Margarita* 
+  ii) *Silas Marner* 
   
-3. **Things to Do**
-  i) Hiking
+3. **Things to Do** 
+
+  i) Hiking 
   ii) Drawing 
-  iii) Exploring Chicago
+  iii) Exploring Chicago 
+  
   
   
